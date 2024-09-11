@@ -48,6 +48,22 @@ pili program file lalu pilih next
 
 lab 2
 
+![2024-09-11_10-36](https://github.com/user-attachments/assets/2245df90-c2d5-41e2-9df4-92a1ba9ff29b)
+
+
+![2024-09-11_10-37](https://github.com/user-attachments/assets/8b83378d-93ee-4588-9c3c-aa7cd7825ade)
+
+
+![2024-09-11_10-38](https://github.com/user-attachments/assets/9d9c1dd6-67a5-40a7-88e2-40d7755f1130)
+
+
+![2024-09-11_10-38_1](https://github.com/user-attachments/assets/22c0d8d3-49cb-4a82-abf9-00ce19fc1d68)
+
+
+
+
+
+
 
 
 
